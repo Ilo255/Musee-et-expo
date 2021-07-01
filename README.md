@@ -49,8 +49,14 @@
 
 #### 10. Copy Right, 2007, [Superflex](https://superflex.net/)
 ![img](img/copyright.jpg)
+*Peut-on faire une copie d'une pièce originale, en n'opérant que de petites modifications? Originale: Ant Chair*
 
+#### 11. Loopingline, 2021, [Thomas Trum](https://www.thomastrum.nl/)
+![img](img/loopingline.jpg)
+*Peinture en explorant les nouvelles technologies.*
+[En +](https://www.youtube.com/watch?v=hw54HM3FNRk)
 
+#### 12. 
 
 
 
