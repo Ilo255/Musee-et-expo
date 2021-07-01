@@ -22,4 +22,28 @@
 #### 4. Pink Beasts, 2020, [Fernando Laposse](http://www.fernandolaposse.com/)
 ![img](img/pink-beast.jpg)
 *Installation de paresseux aux poils roses suspendus aux arbres, immeubles, ect. Fibre de agave coloré naturellement avec insecte cochenille.*
-![img](https://www.youtube.com/watch?v=gX9LYYOmD_I)
+[En +](https://www.youtube.com/watch?v=gX9LYYOmD_I)
+
+#### 5. Earth Paint, 2015, [Atelier NL](https://ateliernl.com/)
+![img](img/earth-paint.jpg)
+
+*Palette de 270 coloris basés sur les tons de la terre autour de Neunen, le village de Van Gogh. Fabrication de peinture à base d'argile et de sable.*
+
+#### 6. Colourful Black Installation, 2017-2020, [Hella Jongerius](http://www.jongeriuslab.com/)
+![img](img/colorful-black.jpg)
+
+*Autre manière d'aborder le noir: contrairement aux couleurs industrielles qui sont assombris en ajoutant du pigment noir, elle se penche sur les couleurs complémentaires. Différentes nuances, ombres grâce aux faces.*
+[En +](https://www.youtube.com/watch?v=qROeUj_3AEE)
+
+#### 7. H.E.R.B.S. (Healthier Environment, Remedy for Body and Skin), 2019, [Nienke Hoogvliet](https://www.nienkehoogvliet.nl/)
+![img](img/couette.png)
+*Développe des textiles qui renverse l'impact négatif des textiles classiques avec leur produit chimique qui peuvent être absorbé par la peau. Au contraire, grâce aux bonnes plantes, ce textile est bénéfique au corps.*
+
+#### 8. Furniture factory, 2011, [Lucas Massen](http://www.lucasmaassen.com/)
+![img](img/lucas-maassen-and-sons.jpg)
+*Les enfants peignent les meubles*
+
+
+
+
+
