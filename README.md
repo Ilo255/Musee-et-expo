@@ -54,9 +54,25 @@
 #### 11. Loopingline, 2021, [Thomas Trum](https://www.thomastrum.nl/)
 ![img](img/loopingline.jpg)
 *Peinture en explorant les nouvelles technologies.*
+
 [En +](https://www.youtube.com/watch?v=hw54HM3FNRk)
 
-#### 12. 
+#### 12. Noisy Jelly n°6, 2021, [Pinaffo Pluvinage](https://pinaffo-pluvinage.com/)
+![img](img/jelly.jpg)
+*Quel est le son de le couleur?*
+[En +](https://www.youtube.com/watch?v=JeruZbWCLy4)
+
+#### 13. Jigsaw, 2017, [Max Lamb](http://maxlamb.org/)
+![img](img/jigsaw.jpg)
+*Matière durable: plaques de Richlite sciées. Très durable, produit à partir de papier FCS*
+
+#### 14. Modern Animism, 2019-2020, [Patricia Domingues](https://www.patriciadomingues.com/#home)
+![img](img/Modern-Animist.jpg)
+[En teps réel](https://modernanimism.com/?lang=fr)
+
+#### 15. Paper Chair, 2006, [Jeroen Wand](https://studiojeroenwand.nl/)
+![img](img/PaperChairs.jpg)
+
 
 
 
