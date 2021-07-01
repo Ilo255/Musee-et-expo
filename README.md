@@ -41,7 +41,15 @@
 
 #### 8. Furniture factory, 2011, [Lucas Massen](http://www.lucasmaassen.com/)
 ![img](img/lucas-maassen-and-sons.jpg)
-*Les enfants peignent les meubles*
+*Ses enfants peignent les meubles.*
+
+#### 9. Design for Discomfort, 2015, [Lynne Brouwer](https://lynnebrouwer.com/)
+![img](img/discomfort.jpg)
+*La couleur pour combler l'inconfort.*
+
+#### 10. Copy Right, 2007, [Superflex](https://superflex.net/)
+![img](img/copyright.jpg)
+
 
 
 
