@@ -101,7 +101,32 @@
 ![img](img/20210721_162118.jpg)
 *Cherche à transcrire une émotion feutrée et nourrie d’observations quotidiennes où la banalité prend une qualité poétique. Dessins de voyage rapides.*
 
-#### 3. , El jardin del amor, 2011, [Dominique Castell](http://dominiquecastell.com/index.html)
+#### 3. El jardin del amor, 2011, [Dominique Castell](http://dominiquecastell.com/index.html)
 ![img](img/allumette.jpg)
+*Dessiné au soufre rose d’allumette, hautement inflammable, métaphore de l’embrasement de la passion*
 
+#### 4. Montagne Sainte-Victoire, 2019, [Fabienne Verdier](https://fabienneverdier.com/)
+![img](img/calli.jpg)
+
+## La ruée vers l'Art
+*24/07/2021, à BOURG-SAINT-ANDEOL*
+
+#### 1. Installation à la Chapelle Saint-Polycarpe, 2021, [Philippe Chitarrini](http://philippe-chitarrini.over-blog.com/) 
+![img](img/20210724_114243.jpg)
+*Volumes transformés par la couleur. Monochrome mais avec effets (satinés, mates, brillant, ect.)*
+
+#### 2. [Marie Denis](https://mariedenis.com/index.html)
+![img](img/20210724_153044.jpg)
+*Eléments de la nature et autres matières naturelles recyclées. Chaque matière devient sujet à renversements, interprétations et basculements pour offrir un inventaire de formes.*
+
+## [La galerie d'Art d'Art](https://galeriedartdart.jimdofree.com/)
+*27/07/2021, à ORANGE*
+
+#### 1. [Artiste XZAV](https://www.instagram.com/xzav_artiste/)
+![img](img/233879837_2887797628149418_2624217336879618189_n.jpg)
+
+#### 2. [Peintre SIL](https://www.instagram.com/silcreatrice/)
+![img](img/sil.jpg)
+
+#### 3. []
 
