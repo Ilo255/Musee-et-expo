@@ -90,4 +90,18 @@
 #### 17. Dawn, 2013, [Michael Johansson](http://www.michaeljohansson.com)
 ![img](img/dawn.jpg)
 
+## [Paysage, entre représentation et imaginaire](https://www.ac-ra.eu/paysages-entre-representation-et-imaginaire/)
+*21/07/2021, au Musée d'Art Contemporain de MONTELIMAR*
+
+#### 1. Psaume 17 (Seigneur tu me sauves de la violence), 2014, [Florence Louise Petetin](https://reseau-dda.org/fr/artists/florence-louise-petetin)
+![img](img/psaume17.jpg)
+*Cette jungle est luxuriante, non aménagée par l'homme en dépit de sa présence. Tension entre extériorité et intériorité: exploration mentale, spirituelle de la nature et expérience physique de celle-ci.* 
+
+#### 2. Collection de l'artiste, 2010-2019, [Raphaëlle Paupert-borne](http://www.documentsdartistes.org/cgi-bin/site/affiche_art_web.cgi?&ACT=1&ID=17)
+![img](img/20210721_162118.jpg)
+*Cherche à transcrire une émotion feutrée et nourrie d’observations quotidiennes où la banalité prend une qualité poétique. Dessins de voyage rapides.*
+
+#### 3. , El jardin del amor, 2011, [Dominique Castell](http://dominiquecastell.com/index.html)
+![img](img/allumette.jpg)
+
 
