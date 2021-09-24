@@ -127,8 +127,8 @@
 ![img](img/calli.jpg)
 
 ## Exposition de [Sly Driencourt](http://slydriencourt.canalblog.com/)
-*23/07/2021, à la Chapelle du Clos Saint Roch à VIVIER
-
+*23/07/2021, à la Chapelle du Clos Saint Roch à VIVIER*
+![img](img/sixtine.jpg)
 
 ## La ruée vers l'Art
 *24/07/2021, à BOURG-SAINT-ANDEOL*
@@ -140,6 +140,21 @@
 #### 2. [Marie Denis](https://mariedenis.com/index.html)
 ![img](img/20210724_153044.jpg)
 *Eléments de la nature et autres matières naturelles recyclées. Chaque matière devient sujet à renversements, interprétations et basculements pour offrir un inventaire de formes.*
+
+## Exposition de [Frédérique Lemarchand](https://www.lemarchand-peintre.com/accueil/)
+*25/07/2021, à l'Eglise Prieuré Saint-Pierre à PONT-SAINT-ESPRIT*
+
+#### 1. "Amphibie bleue" (2013)
+![img](img/fr2.jpg)
+
+#### 2. Techouva IV (2017)
+![img](img/fr3.jpg)
+
+## [Musée d'Art Sacré du Gard](https://musees.gard.fr/decouvrir-les-musees/musee-dart-sacre-du-gard/presentation.html)
+*25/07/2021, à PONT-SAINT-ESPRIT*
+
+#### Exposition temporaire de [Sylvie Deparis](http://sylvie-deparis.odavia.com/pro_page.asp?page=8054&lg=)
+
 
 ## [La galerie d'Art d'Art](https://galeriedartdart.jimdofree.com/)
 *27/07/2021, à ORANGE*
