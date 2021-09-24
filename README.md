@@ -90,6 +90,24 @@
 #### 17. Dawn, 2013, [Michael Johansson](http://www.michaeljohansson.com)
 ![img](img/dawn.jpg)
 
+## [Atelier d'Elisa Godefroid](http://www.elisagodefroid.com/)
+*21/07/2021, à MONTELIMAR
+![img](img/elisa1.jpg)
+![img](img/elisa2.jpg)
+![img](img/elisa3.jpg)
+
+## [La marionnette conte aussi...](https://www.montelimar.fr/vivre-montelimar/culture-festivites/le-musee-de-montelimar)
+*21/07/2021, au Musée de la ville de Montélimar à MONTELIMAR*
+
+### 1. Marionnnettes du conte de Riquet à la Houppe, [Emilie Valentin](https://cie-emilievalantin.fr/)
+![img](img/houppe.jpg)
+
+### 2. Marionnettes du conte de Barbe Bleue, [Emilie Valentin](https://cie-emilievalantin.fr/)
+![img](img/bleu.jpg)
+
+### 3. Marionnettes du conte de Mélampous, [Emilie Valentin](https://cie-emilievalantin.fr/)
+![img](img/myth.jpg)
+
 ## [Paysage, entre représentation et imaginaire](https://www.ac-ra.eu/paysages-entre-representation-et-imaginaire/)
 *21/07/2021, au Musée d'Art Contemporain de MONTELIMAR*
 
@@ -107,6 +125,10 @@
 
 #### 4. Montagne Sainte-Victoire, 2019, [Fabienne Verdier](https://fabienneverdier.com/)
 ![img](img/calli.jpg)
+
+## Exposition de [Sly Driencourt](http://slydriencourt.canalblog.com/)
+*23/07/2021, à la Chapelle du Clos Saint Roch à VIVIER
+
 
 ## La ruée vers l'Art
 *24/07/2021, à BOURG-SAINT-ANDEOL*
